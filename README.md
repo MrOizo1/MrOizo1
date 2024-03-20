@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MrOizo1
-- 👀 I’m interested in in IT education 
+- 👀 I’m interested in IT education 
 - 🌱 I’m currently learning the skillfactory platform.
 - 💞
 - 📫 How to reach me ...
